@@ -9,3 +9,4 @@ Algunas cosas sobre mi:
 <li>pienso seguir estudiando</li>
 </li>
 </ul>
+![](https://photos.app.goo.gl/eHhanFqCp1UB1oXc6)
