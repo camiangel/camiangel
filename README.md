@@ -9,7 +9,6 @@ Algunas cosas sobre mi:
 <li>pienso seguir estudiando</li>
 </li>
 </ul>
-
 - me encantan los gatos
 - fan de boca
 - tengo dos perritas 
