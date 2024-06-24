@@ -20,3 +20,5 @@ Algunas cosas sobre mi:
 
 
 ![](https://upload.wikimedia.org/wikipedia/commons/8/83/Escudo_del_Club_Atl%C3%A9tico_Boca_Juniors.svg)
+
+[](https://www.bocashop.com.ar/?utm_source=google&utm_medium=cpc&utm_campaign=BL_BocaShop_Search_&utm_term=&utm_content=General_Agos2023&gad_source=1&gclid=Cj0KCQjwsuSzBhCLARIsAIcdLm6sflSekwQpff0_VLivRPn-gZZ3bvqPEhCQrFrT75TxcS3i9H3A0l0aAm1nEALw_wcB&uam=true&mobile=4)
