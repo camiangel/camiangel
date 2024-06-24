@@ -11,9 +11,9 @@ Algunas cosas sobre mi:
 </ul>
 
 - me encantan los gatos
--fan de boca
+- fan de boca
 - tengo dos perritas 
--me mudé hace 2 años
+- me mudé hace 2 años
 - tengo dos hermanos 
 
 
