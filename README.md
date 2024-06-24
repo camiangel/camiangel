@@ -9,10 +9,11 @@ Algunas cosas sobre mi:
 <li>pienso seguir estudiando</li>
 </li>
 </ul>
+item1 me encantan los gatos
+item2 fan de boca
+item3 tengo dos perritas 
+item4 me mudé hace 2 años
 
-
-- item1
-- item 2
 
 
 
